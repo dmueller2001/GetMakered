@@ -1,2 +1,2 @@
 # GetMakered
-Dedicated Create Magical Interactions with Technology 
+Dedicated To Creating Magical Interactions with Technology 
